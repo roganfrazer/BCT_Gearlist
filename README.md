@@ -7,13 +7,12 @@ This is my Gear List for BCT(at AUT) and will be updated when and where I can.
 I am going a Design Route and this can impact my decisions, I also own a mac for uni and or a gaming pc at home.
 
 This is Your go to place for 99% of everything, the 1% is google.
-https://unicentral.aut.ac.nz/Pages/default.aspx
+www.unicentral.aut.ac.nz/Pages/default.aspx
 ----------------------------------------------------------------------------------------------------------------------------------------
-* Latops; Charger's, Mouse, External Hard Drive (1-2 TB)
+* Latops; Charger's, Mouse, External Hard Drive (1-2 TB), Mouse/Mousepad, Headphones
 * Software; Adobe CS CS 6+, Final Cut,Sketch(S3),Fusion360 (S4), Atom(S5), Office 365(S6)
-* 
 * Ink Pens;
-* Notebooks;
+* Notebooks; I 
 * DSLR Camera,SD Cards, Tripod's.
 ----------------------------------------------------------------------------------------------------------------------------------------
 * S3:  https://backend.bohemiancoding.com/store/edu/   [50% off]
